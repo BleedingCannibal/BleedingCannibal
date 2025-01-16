@@ -16,7 +16,7 @@
 
 
 [My Atabook](https://bleedingcannibal.atabook.org/)   ★  [My Strawpage](https://donk3yssxxxx.straw.page/)   ★  [Space4Drawing](https://drawingspacee.straw.page/)
-★ Others are wip!
+★ 𝗜 𝗲𝗻𝗷𝗼𝘆 𝘁𝗼 𝘁𝗼𝗿𝘁𝘂𝗿𝗲 𝗺𝘆 𝘀𝗶𝗺𝘀
 
 
 
