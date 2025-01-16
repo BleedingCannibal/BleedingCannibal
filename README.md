@@ -16,6 +16,7 @@
 
 
 [My Atabook](https://bleedingcannibal.atabook.org/)   ★  [My Strawpage](https://donk3yssxxxx.straw.page/)   ★  [Space4Drawing](https://drawingspacee.straw.page/)
+★ Others are wip!
 
 
 
