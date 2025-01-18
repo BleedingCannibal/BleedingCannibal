@@ -16,9 +16,7 @@
 
 
 [My Atabook](https://bleedingcannibal.atabook.org/)   ★  [My Strawpage](https://donk3yssxxxx.straw.page/)   ★  [Space4Drawing](https://drawingspacee.straw.page/)
-★ ppl under 13, Dni ★ C+H friendly.
-★ Experimenting w styles, sorry if it looks like yours :(
-
+![★](https://github.com/BleedingCannibal/BleedingCannibal/blob/e570dfea5b9d595d2a0a5d536b69c11640f17bd5/Lumii_20250118_120345964.png)
 
 
 
