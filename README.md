@@ -16,7 +16,7 @@
 
 
 [My Atabook](https://bleedingcannibal.atabook.org/)   ★  [My Strawpage](https://donk3yssxxxx.straw.page/)   ★  [Space4Drawing](https://drawingspacee.straw.page/)
-![★](https://github.com/BleedingCannibal/BleedingCannibal/blob/e570dfea5b9d595d2a0a5d536b69c11640f17bd5/Lumii_20250118_120345964.png)
+![★](https://github.com/BleedingCannibal/BleedingCannibal/blob/4a4235c2f78e5cb33f14ec40ed61521d36a7423e/Titelloses%20305_20250118121457.png)
 
 
 
