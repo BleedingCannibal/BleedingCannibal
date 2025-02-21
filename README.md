@@ -24,3 +24,7 @@
 
 
 ![★](https://github.com/BleedingCannibal/BleedingCannibal/blob/e6191e416ba95acd081f305c6c844d3be5868c6c/tumblr_611d011cf823488a7d607300a0aec026_b65e243a_1280.png)
+
+
+
+(i either need to create another alt or change up this account but something will change, thats for sure)
