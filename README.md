@@ -27,4 +27,3 @@
 
 
 
-(i either need to create another alt or change up this account but something will change, thats for sure)
