@@ -17,6 +17,8 @@
 
 [My Atabook](https://bleedingcannibal.atabook.org/)   ★  [My Strawpage](https://donk3yssxxxx.straw.page/)   ★    𓆊  [Space4Drawing](https://drawingspacee.straw.page/)
 ★ he/him ★ [Alt Account](https://github.com/STERNEN-KIND)
+★ [my TikTok - for art](https://www.tiktok.com/@donk3ysss?_t=ZG-8tvxTh7M2rY&_r=1) ★
+[my Telegram channel](t.me/m0zartkugeln)
 
 ![★](https://github.com/BleedingCannibal/BleedingCannibal/blob/4a4235c2f78e5cb33f14ec40ed61521d36a7423e/Titelloses%20305_20250118121457.png)
 
