@@ -28,6 +28,5 @@
 
 
 ★ [my TikTok - for art](https://www.tiktok.com/@donk3ysss?_t=ZG-8tvxTh7M2rY&_r=1) ★
-[my Telegram channel](t.me/m0zartkugeln)★
-
+or my insta, @donk3ysss
 
