@@ -30,3 +30,4 @@
 ★ [my TikTok - for art](https://www.tiktok.com/@donk3ysss?_t=ZG-8tvxTh7M2rY&_r=1) ★
 or my insta, @donk3ysss
 
+Mentally in the 18s, my apologies.......
