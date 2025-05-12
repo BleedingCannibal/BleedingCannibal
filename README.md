@@ -31,3 +31,6 @@
 or my insta, @donk3ysss
 
 Mentally in the 18s, my apologies.......
+
+
+![](https://komarev.com/ghpvc/?username=BleedingCannibal&abbreviated=true&color=grey)
