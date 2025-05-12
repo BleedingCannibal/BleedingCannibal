@@ -31,4 +31,4 @@
 Mentally in the 18s, my apologies.......
 
 
-![](https://komarev.com/ghpvc/?username=BleedingCannibal&abbreviated=true&color=grey)
+![](https://komarev.com/ghpvc/?username=BleedingCannibal&abbreviated=true&color=grey&label=Pirates)
