@@ -27,8 +27,6 @@
 ![★](https://github.com/BleedingCannibal/BleedingCannibal/blob/e6191e416ba95acd081f305c6c844d3be5868c6c/tumblr_611d011cf823488a7d607300a0aec026_b65e243a_1280.png)
 
 
-★ [my TikTok - for art](https://www.tiktok.com/@donk3ysss?_t=ZG-8tvxTh7M2rY&_r=1) ★
-or my insta, @donk3ysss
 
 Mentally in the 18s, my apologies.......
 
