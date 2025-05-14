@@ -28,7 +28,7 @@
 
 
 
-Mentally in the 18s, my apologies.......
+Mentally in the 18th century, my apologies.......
 
 
 ![](https://komarev.com/ghpvc/?username=BleedingCannibal&abbreviated=true&color=grey&label=Pirates)
