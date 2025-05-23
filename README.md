@@ -30,5 +30,7 @@
 
 Mentally in the 18th century, my apologies.......
 
+(if you have c+h in your name i WILL come up to you, i love to stay with people!!:P)
+
 
 ![](https://komarev.com/ghpvc/?username=BleedingCannibal&abbreviated=true&color=grey&label=Pirates)
